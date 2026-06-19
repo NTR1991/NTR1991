@@ -1,4 +1,4 @@
-# 👋 Hola, soy Néstor
+# 👋 Hola, soy Nestor
 
 ### Profesional IT | Full Stack en formación | Alemán C1
 
